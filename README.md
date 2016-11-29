@@ -1,1 +1,1 @@
-## Science for Chnage Kosovo 
+## Science for Change Kosovo 
